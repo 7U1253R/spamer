@@ -27,6 +27,6 @@ Flood any class or meeting with as many chat spamming bots as you desire 😈
 
 <h3>Please consider:</h3>
 <ul>
-<li>Youtube:  <a style="color:red;" target="_Blank" href="https://www.youtube.com/channel/UCinBnZ2BKAbCKA1w9lmFd0w">Subscribe</a></li>
+<li>Youtube:  <a style="color:red;" target="_Blank" href="https://www.youtube.com/channel/UC8FXMpOX59j7H6cMic8SA">Subscribe</a></li>
 <li>Instagram:  <a style="color:#dc2ef0;" target="_Blank" href="https://www.instagram.com/nyc.geahad.codes/">Follow</a></li>
 </ul>
