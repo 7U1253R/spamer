@@ -27,8 +27,8 @@ Flood any class or meeting with as many chat spamming bots as you desire 😈
 
 <h3>Please consider:</h3>
 <ul>
-<li>Youtube:  <a style="color:red;" target="_Blank" href="https://www.youtube.com/channel/UC8FXMpOX5-9j7H6-cMic8SA">Subscribe</a></li>
-<li>Instagram:  <a style="color:#dc2ef0;" target="_Blank" href="https://www.instagram.com/ali3n_hunt/">Follow</a></li>
+<li>Youtube:  <a style="color:red;" target="_Blank" href="https://youtube.com/channel/UCminy9N0_3hkWEjIybPcMMw">Subscribe</a></li>
+<li>Instagram:  <a style="color:#dc2ef0;" target="_Blank" href="https://instagram.com/_luiz_ser_?utm_medium=copy_link">Follow</a></li>
 </ul>
 
 ༒︎𝐀𝐀𝐀★𝐋𝐔𝐈𝐙༒
