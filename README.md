@@ -30,3 +30,5 @@ Flood any class or meeting with as many chat spamming bots as you desire 😈
 <li>Youtube:  <a style="color:red;" target="_Blank" href="https://www.youtube.com/channel/UC8FXMpOX5-9j7H6-cMic8SA">Subscribe</a></li>
 <li>Instagram:  <a style="color:#dc2ef0;" target="_Blank" href="https://www.instagram.com/ali3n_hunt/">Follow</a></li>
 </ul>
+
+༒︎𝐀𝐀𝐀★𝐋𝐔𝐈𝐙༒
